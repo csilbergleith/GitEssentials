@@ -1,2 +1,3 @@
 Hello World
 Some more changes
+Edited for Resolving merge conflicts

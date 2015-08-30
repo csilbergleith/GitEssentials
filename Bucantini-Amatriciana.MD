@@ -1,1 +1,10 @@
 # Bucantini-Amatriciana
+http://www.mariobatali.com/recipes/bucatini-allamatriciana/
+1/4 cup extra-virgin olive oil
+12 ounces thinly sliced guanciale pancetta, or good bacon
+1 red onion, cut lengthwise in half and then into 1/4-inch-thick half-moons
+3 cloves garlic, sliced
+1 1/2 teaspoons hot red pepper flakes
+2 cups Basic Tomato Sauce
+1 pound Bucatini
+Freshly grated Pecorino Romano
